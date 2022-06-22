@@ -1,4 +1,4 @@
-![Bitgenia](https://www.bitgenia.com/wp-content/uploads/2021/10/logo.svg)
+![Bitgenia](https://i.imgur.com/AmXAJlo.png)
 
 
 ### Facilitamos el conocimiento de **nuestro ADN** para mejorar la calidad de vida
